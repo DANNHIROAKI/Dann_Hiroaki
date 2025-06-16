@@ -1,5 +1,3 @@
- ![](https://komarev.com/ghpvc/?username=DANNHIROAKI&color=green) 
-
 🤔Bio出门左转去[个人主页](https://dannhiroaki.github.io/)
 
 <p>
